@@ -4,7 +4,7 @@ Repository này chứa toàn bộ các tài liệu học tập, bài tập về 
 ### Lịch học cố định
  - **18h tối thứ 4 tại phòng CLB HIT tầng 9 nhà A1**
 
-### Group Facebook Nhóm
+### Group Facebook Link
  - **https://www.facebook.com/groups/hitai/**
 
 
